@@ -1,11 +1,11 @@
-# lytex-X
+# [lytex-X](https://discord.com/invite/dq2GDjrzWK)
 
 
 
 
 
 
-📊 MY STATS 📊 :
+Statistique :
 
 
 

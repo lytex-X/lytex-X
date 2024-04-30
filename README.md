@@ -1,4 +1,4 @@
-# [lytex-X](https://discord.com/invite/dq2GDjrzWK)
+### [Cyb3rtech](https://discord.gg/cyb3rtech)
 
 
 

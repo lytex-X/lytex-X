@@ -1,4 +1,4 @@
-### [Cyb3rtech](https://discord.gg/cyb3rtech)
+### [Cyb3rtech](https://discord.gg/primeleakfr)
 
 
 
